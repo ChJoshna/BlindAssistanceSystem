@@ -24,8 +24,3 @@ This is a vision enhancer based module specifically for the BLIND VICTIMS. The s
 * [Youtube](https://www.youtube.com/watch?v=3BXIuU2AcGg&feature=emb_title)
 
 
-## :clap: And it's done!
-Feel free to mail me for any doubts/query 
-* :email: aryan.gupta18@vit.edu
-* ⭐: Instagram: @beingryaan
-* 💙: LinkedIn: https://www.linkedin.com/in/aryan-gupta-6a9201191/
